@@ -1,3 +1,4 @@
 - fazer a isa ir no integra
-- call com o bae :heart:
+- call com meu amorzin hj :heart:
 - fazer trabalho de calculo socorrinho
+- estudar eq e provinha
