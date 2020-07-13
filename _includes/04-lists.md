@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- fazer a isa ir no integra
+- call com o bae :heart:
+- fazer trabalho de calculo socorrinho
