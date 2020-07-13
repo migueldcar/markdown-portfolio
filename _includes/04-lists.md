@@ -1,0 +1,3 @@
+- fazer a isa ir no integra
+- call com o bae :heart:
+- fazer trabalho de calculo socorrinho
