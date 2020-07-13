@@ -1,1 +1,4 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+_estou cansado_
+**quero almoçar logo**
+_isa ta querendo fugir do integra_
+**eu nao vou deixar rs**
